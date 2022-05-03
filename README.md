@@ -1,0 +1,3 @@
+- 🌱 oie estou usando a plataforma!
+- 💞️ procuro aprender e ter acesso a esse conhecimento
+- 📫 para entrar em contato comigo oliveira05@escola.pr.gov.br
